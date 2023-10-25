@@ -1,1 +1,1 @@
-India is my contry
+India is my country
